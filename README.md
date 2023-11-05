@@ -1,1 +1,1 @@
-# OLX_Clone_For_IITG
+# Campus Trade Utopia: IITG Marketplace
